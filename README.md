@@ -1,1 +1,1 @@
-# ai-powered-bots-on-social-media
+# AI-Powered Bots on Social Media
